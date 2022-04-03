@@ -1,2 +1,13 @@
 # test7
--
+ha[ofiha[gh[UGHA[UGHs{ug
+AGRURGHAUGHAG
+GA'SIGHA'OSJGH
+A
+GARG
+ARG
+A
+RG
+AG
+A
+GA
+	-
